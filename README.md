@@ -296,7 +296,7 @@ This laboratory is intended strictly for education purposes only.
 **Onyeoziri Prince**\
 Cybersecurity Intern B084
 
-LinkedIn: [](https://www.linkedin.com/in/onyeoziri-prince-b4387a348/))
+LinkedIn: [https://www.linkedin.com/in/onyeoziri-prince](https://www.linkedin.com/in/onyeoziri-prince-b4387a348/))
 
 ---
 
